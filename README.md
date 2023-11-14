@@ -1,1 +1,1 @@
-# g-rkem
+BARİS'IN GRUBUNDAN / GÖRKEM KARAYİĞİT
